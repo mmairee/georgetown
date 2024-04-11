@@ -1,4 +1,4 @@
-# Neighborhood Developemt Change Overtime from 2012 - 2022
+# Neighborhood Development Change Overtime from 2012 - 2022
 ## Georgetown, Kentucky
 
 In this neighborhood area of Georgetown, much change has happened. Georgetown has been a city experiencing a lot of population growth. More population = more housing. In this map, you can see that many homes have been built in this area since 2012 to accomodate more families and people to live in this city.
